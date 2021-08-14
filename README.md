@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Typical-ferret
+- 👀 I’m interested in ... decentralization
+- 🌱 I’m currently learning ... sql
+- 💞️ I’m looking to collaborate on ... learning/hobby crypto projects
+- 📫 How to reach me ... coinsocial.crypto@gmail.com
